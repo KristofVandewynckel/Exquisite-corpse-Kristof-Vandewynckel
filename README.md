@@ -26,3 +26,8 @@ Middle one applaud. Short one said;
 
 </strong>
 
+After some legal discussions the three agreed to contact a contractor who could make a fire-resistant hut so. 
+
+The hut agreed to all laws and norms. Or so they thought. The day after they finished the hut a functionary  arrived.
+
+- As by the stistofarrest of 20 februari 2020, your milieueffectenrapport is not sufficient an your hut needs be broken down.
