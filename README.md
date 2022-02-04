@@ -36,3 +36,4 @@ After some legal discussions the three agreed to contact a contractor who could 
 The hut agreed to all laws and norms. Or so they thought. The day after they finished the hut a functionary  arrived.
 
 - As by the stistofarrest of 20 februari 2020, your milieueffectenrapport is not sufficient an your hut needs be broken down.
+"It was a cold morning,but the storm came out of nowhere. Everyone started desperately looking for a shelter. That's when I noticed a bird nest on the floor. " 
