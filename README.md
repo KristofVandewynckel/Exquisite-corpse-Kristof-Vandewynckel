@@ -15,4 +15,14 @@ One day the tallest of the friends turned to the others and said:
 
 </strong>
 
+<strong>
+Why dont we build three huts for each one of us?
+ 
+Middle one applaud. Short one said;
+
+-I heard this story about a wolf and piggies. I dont want to be the one building my hut from straw. Long one replied 
+
+-Don't be dramatic we will check Koninklijk besluit van 7 juli 1994 tot vaststelling van de basisnormen voor de preventie van brand en ontploffing waaraan de gebouwen moeten voldoen (update 2016)
+
+</strong>
 
