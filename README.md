@@ -26,3 +26,8 @@ Middle one applaud. Short one said;
 
 </strong>
 
+## SebastianG's Contribution 
+* I'm out of inspiration...
+* I don't know what to write..
+* Good luck BeCoders!
+
