@@ -16,9 +16,9 @@ One day the tallest of the friends turned to the others and said:
 </strong>
 
 <strong>
-Why dont we build three huts for each one of us?
+Why dont we build three huts for each of us?
  
-Middle one applaud. Short one said;
+Middle one applauded. Short one said;
 
 -I heard this story about a wolf and piggies. I dont want to be the one building my hut from straw. Long one replied 
 
@@ -31,9 +31,9 @@ Middle one applaud. Short one said;
 * I don't know what to write..
 * Good luck BeCoders!
 
-After some legal discussions the three agreed to contact a contractor who could make a fire-resistant hut so. 
+After some legal discussions the three agreed to contact a contractor who could make a fire-resistant hut so 
 
-The hut agreed to all laws and norms. Or so they thought. The day after they finished the hut a functionary  arrived.
+the hut agreed to all laws and norms. Or so they thought. The day after they finished the hut a functionary  arrived.
 
 - As by the stistofarrest of 20 februari 2020, your milieueffectenrapport is not sufficient an your hut needs be broken down.
 
